@@ -1,0 +1,1 @@
+uso de prompts: chatgpt.com. Meu projeto busca a reflexão sobre a importância da rota da soja do campo à cidade, e que sem essa rota, seria mais difícil ter comida na mesa, além de dar muitas chances de geração de emprego.
